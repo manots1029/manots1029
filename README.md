@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **manots1029@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:</h3>https://www.linkedin.com/in/mohd-nor-mohidin-866599163/
 <p align="left">
 </p>
 
